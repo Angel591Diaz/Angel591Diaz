@@ -58,8 +58,7 @@ I have worked on team-based projects using agile methodologies and version contr
 ## 📫 Contact
 
 - 📧 Email: angelgabrield365@gmail.com  
-- 💼 LinkedIn: https://www.linkedin.com/in/angel-gabriel-diaz-ramirez-0a80332b6/  
-- 🐙 GitHub: https://github.com/Angel591Diaz  
+- 💼 LinkedIn: www.linkedin.com/in/angel591diaz
 
 ---
 
